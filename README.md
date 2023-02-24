@@ -1,3 +1,3 @@
 # Ejercicio6
-Intruccion.
+Intruccionnnnnn.
 # Desarrollo
